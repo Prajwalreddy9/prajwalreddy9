@@ -4,7 +4,7 @@
 
 - 📫 How to reach me **prajwalreddy2799@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1aCyUaOkSj6fiG62lIqyKR7FD4mrXtHOP/view?usp=sharing](https://drive.google.com/file/d/1aCyUaOkSj6fiG62lIqyKR7FD4mrXtHOP/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1vpzFFZ-9XNOsPSqkZn3idJFITIrEafE_/view?usp=sharing]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
